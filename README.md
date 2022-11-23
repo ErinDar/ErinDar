@@ -1,4 +1,4 @@
-# Hi, I'm Erin Dar! 👋🏾 👩🏾‍💻
+# Hi, I'm Erin 👋🏾 👩🏾‍💻
 
 ![Erin Malone](https://user-images.githubusercontent.com/102836435/203474899-27ebda2d-6cfd-4a74-850d-23fa88ddd80a.png)
 
